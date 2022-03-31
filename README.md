@@ -1,1 +1,1 @@
-﻿# Salom Nafisa bintu abdurahmon
+﻿# Diyorbek Kholikulov
